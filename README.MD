@@ -1,1 +1,0 @@
-Where Education  meets Intelligence
